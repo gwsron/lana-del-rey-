@@ -1,2 +1,1 @@
-# lana-del-rey-
-idk
+.
